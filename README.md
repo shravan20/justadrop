@@ -1,1 +1,1 @@
-# Just A Drop Initiative Home Page
+# Just A Drop Initiative 
